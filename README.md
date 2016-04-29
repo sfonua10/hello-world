@@ -2,4 +2,4 @@
 Just another repository
 Hi there!
 
-My name is Saia. I want to learn to code and master those skills and use those skills to contribute to awesome things!
+My name is Saia, no I'm not a liar, dribble bounce back hit the 3 I'm on fire
